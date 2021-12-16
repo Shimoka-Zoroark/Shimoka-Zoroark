@@ -1,0 +1,7 @@
+- Hello! I'm Shimoka!
+- I'm intrested in learning more about coding, and electronics in general
+- I'm currently (trying) to learn more on console repairing
+- Right now, I'm not collaborating on anything except for character designing, and only for animal characters
+- You can reach me at shimokazoroark@gmail.com
+- For anyone curios, I go by she/her pronouns
+- If anyone is able to help me understand the inner-workings of a furby better, that would be amazing!
